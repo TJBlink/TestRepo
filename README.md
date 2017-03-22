@@ -1,3 +1,0 @@
-#Project concept:
-ygybybbubh
-jhuyhuuhh
